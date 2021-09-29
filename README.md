@@ -1,1 +1,1 @@
-# My Awesome Pro Swallowing Team
+# My Awesome Pro Sword Swallowing Team
