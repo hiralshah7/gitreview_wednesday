@@ -1,5 +1,3 @@
-# My AwesomeFlaming sword Swallowing Team
-
 TODO: Write a project business/team
 
 
